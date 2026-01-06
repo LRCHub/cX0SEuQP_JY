@@ -1,0 +1,46 @@
+# ENHYPEN – Outside
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah
+Drivin' hard, I'm tired with that question mark
+Pretty boy? No I'm not 울려 red alert
+본능이 눈을 떴지, 마치 드라큘라
+Never tamed 하얀 fang 더욱 미쳐가
+Was a pretty boy, but it's getting ugly
+머릴 부술 듯이 hit me 내 욕망의 소리
+헛된 고결함 대신 널 갖고 싶어졌지
+천사와 악마는 밤을 새워 I need melatonin
+눈에 선 내 핏발, 비틀린 입꼬리
+거울 너머에 비친 truths, alter ego's smiling
+"Watch me, watch me" 요동쳐 내 맘이
+붉은 달이 뜬 이 밤, 벗겨져 내 베일이
+X-game처럼 넌 drive me
+질주해 내 혈관의 adrenaline
+넘치는 욕망 널 데려가지
+내 이성의 경계선 너머까지
+We be outside
+선을 넘어 ride
+동화 속은 sweet
+너와 세운 dream world
+맹세와 다짐
+Wait, when the night comes
+풀어 나의 leash
+가면 따윈 벗어
+이 세계는 flip
+Turned into a bad love, damn
+너를 지킨다던 의지
+이젠 중요하지 않지
+돌이킬 수 없는 journey
+내 세계로 너를 데려가지
+X-game처럼 넌 drive me
+질주해 내 혈관의 adrenaline
+추악한 욕망, 널 데려가지
+내 이성의 경계선 너머까지
+Skrt
+We be outside
+선을 넘어 ride
+We be outside
+선을 넘어 ride
+```
